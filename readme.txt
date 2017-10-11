@@ -1,1 +1,2 @@
 hello
+LamazeP is God.
